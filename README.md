@@ -1,1 +1,1 @@
-# just a common people
+# 不想学啦
