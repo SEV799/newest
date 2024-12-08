@@ -1,1 +1,1 @@
-# 学不完啦
+some resource
